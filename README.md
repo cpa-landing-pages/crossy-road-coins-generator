@@ -1,4 +1,4 @@
-### Crossy Road Hack
+### Crossy Road Coins Hack
 
 #### About
 ---
